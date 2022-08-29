@@ -1,4 +1,4 @@
-# my Zotero username below
+# My Zotero username below
 
 meghanachikyala 
 
